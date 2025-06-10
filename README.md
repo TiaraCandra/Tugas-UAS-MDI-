@@ -1,2 +1,3 @@
 # Tugas-UAS-MDI-
-tugas MDI
+Nama: tiara
+ya gitu
